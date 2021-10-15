@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TomJoy03
+- 👀 I’m studying at the University of Leeds, England.
+- 🌱 I’m currently learning Computer Science.
+- 📫 Reach by Direct Message.
